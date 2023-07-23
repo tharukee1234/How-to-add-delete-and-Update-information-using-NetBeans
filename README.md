@@ -1,0 +1,7 @@
+![1](https://github.com/tharukee1234/How-to-add-delete-and-Update-information-using-NetBeans/assets/91239602/fc180749-b94c-4257-b53f-5a7dfbef7008)
+![2](https://github.com/tharukee1234/How-to-add-delete-and-Update-information-using-NetBeans/assets/91239602/0ac217e3-8117-47cf-93b8-b318905a024c)
+![3](https://github.com/tharukee1234/How-to-add-delete-and-Update-information-using-NetBeans/assets/91239602/d5c1de5f-6ff9-4f0b-8eee-ae471ec26fd5)
+![4](https://github.com/tharukee1234/How-to-add-delete-and-Update-information-using-NetBeans/assets/91239602/56eaf98d-3364-4c39-99ce-52e501e7743e)
+![5](https://github.com/tharukee1234/How-to-add-delete-and-Update-information-using-NetBeans/assets/91239602/833316d2-c66e-47ef-9cbc-d1903430c629)
+![6](https://github.com/tharukee1234/How-to-add-delete-and-Update-information-using-NetBeans/assets/91239602/40afa5c7-9268-4bc0-8b4f-deaf7c8650db)
+![7](https://github.com/tharukee1234/How-to-add-delete-and-Update-information-using-NetBeans/assets/91239602/056f75f8-3779-47ed-9cb8-3b34ed23ce63)
